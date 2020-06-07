@@ -1,3 +1,3 @@
 Savelii Sychov - mentor
 
-Name Surname - role
+Alexander Semenov - student
