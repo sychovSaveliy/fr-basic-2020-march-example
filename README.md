@@ -1,3 +1,3 @@
 Savelii Sychov - mentor
 
-Alexander Semenov - student
+Alexander Semenov - student!
