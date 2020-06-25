@@ -1,3 +1,4 @@
+Victoria Lomonosova - student!
 Max Bernevek - Student!
 Prygun Elena also here!
 
