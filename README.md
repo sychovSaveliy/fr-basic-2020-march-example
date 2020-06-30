@@ -1,3 +1,5 @@
+Bill Gates - I will chip everyone !
+
 Alexander Semenov - student!
 
 Igor Klyushnyk - student
